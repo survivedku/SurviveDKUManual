@@ -1,2 +1,2 @@
-# xue-xiao-zi-yuan
+# 学校资源
 
